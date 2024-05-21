@@ -7,3 +7,4 @@ ray: lol, well im as old as Mongopark
 what are you doing this weekend?
 summer is back! a good time to be at the beach
 if your weekend is not too busy lets have some good time
+revert to me before noon so i can start making plans
